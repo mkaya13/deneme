@@ -1,1 +1,1 @@
-# deneme
+içine bir sürü şey ekledim
